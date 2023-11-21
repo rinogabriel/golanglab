@@ -1,0 +1,1 @@
+Reflekis yang saya dapatkan yaitu saya dapat mengetahui function function baru dan juga letak penataan function dalam tugas kali ini, walaupun saya lambat mencernanya tapi sedikit sedikit akan bisa dimengerti, function yang baru saya tau ada power,divde, multiply dan subtract.
